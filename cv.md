@@ -5,7 +5,7 @@ nemtsovalex@tut.by | +375291245823 | July, 25, 1994 | Minsk
 
 ## About myself
 
-Experienced, good team player, always ready to help my teammates. Wide open to new knowledges and opportunities.
+Experienced, good team player, always ready to help my teammates. Wide open to new knowledges and opportunities. Good squash player.
 
 ## Experience
 
